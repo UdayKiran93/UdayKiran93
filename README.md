@@ -1,0 +1,6 @@
+- 👋 Hi, I’m UdayKiran
+- 👀 I’m interested in ... learning new things
+- 🌍 I had completed Diploma in EEE.
+- 🌈 Currently studying B.Tech.
+- 🌱 I’m currently learning ...VLSI Design 
+- 💞️ I’m looking to collaborate on ... Electrical oriented jobs
